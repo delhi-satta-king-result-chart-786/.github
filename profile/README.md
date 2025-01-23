@@ -2,6 +2,13 @@
 
 Stay updated with the latest Delhi Satta King Result, Satta King 786, and regional results for Disawar, Gali, Faridabad, and Ghaziabad. Get insights from the Satta King chart and discover trends for 2025. Be informed with the latest winning numbers and predictions.
 
+## **Table of Contents**  
+1. [Delhi Satta King Result](#delhi-satta-king-result)  
+2. [Disawar Satta King Result](#disawar-satta-king-result)  
+3. [Gali Satta King Result](#gali-satta-king-result)  
+4. [Faridabad Satta King Result](#faridabad-satta-king-result)  
+5. [Ghaziabad Satta King Result](#ghaziabad-satta-king-result) 
+
 ---
 
 ### **Delhi Satta King Result**  
